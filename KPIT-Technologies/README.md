@@ -1,0 +1,1 @@
+# KPIT Technologies Equity Research
